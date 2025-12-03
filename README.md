@@ -1,0 +1,2 @@
+# EXPLORENGAWI1
+ngawi
